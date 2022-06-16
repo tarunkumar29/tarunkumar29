@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tarunkumar29
 - 👀 I’m interested in technology
-- 🌱 I’m currently learning everthing
+- 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me ...
 
